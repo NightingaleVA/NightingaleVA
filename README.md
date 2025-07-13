@@ -11,7 +11,7 @@
 
 - 🆒 Pronouns: Sher(bert) (She/Her If you are normal and uncool)
 
-- 💬 Ask me about **The Monster that murdered me**
+- 💬 Ask me about **The [REDACTED that [REDACTED me**
 
 - ⚡ Fun fact **I am SCP-[REDACTED]**
 
